@@ -1,2 +1,0 @@
-# Ted_txt2lol-tedfile
-Skylestroderposlenhomenfuckleyleuteypuypeylickmydick
